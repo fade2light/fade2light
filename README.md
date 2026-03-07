@@ -5,5 +5,5 @@ he / him sp259 fevl
 </p>
 <div align="center">
   <a href="https://github.com/fade2light">
-    <img src="https://komarev.com/ghpvc/?username=fade2light&label=&color=ffffff&style=flat&labelColor=360a0a" alt="1" style="border-radius: 10px;" />
+    <img src="https://komarev.com/ghpvc/?username=fade2light&label=&color=ffffff&style=flat&labelColor=ffffff" alt="1" style="border-radius: 10px;" />
   </a>
