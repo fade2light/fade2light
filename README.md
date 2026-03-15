@@ -1,6 +1,6 @@
  <img src="https://files.catbox.moe/jwywuy.png" width="300" align="left"> 
 
-$\color{#A1B64F}{\textsf{i'm open to int if u're first n I often sit on safe server}}$ 
+$\color{#A1B64F}{\textsf{w2i i'm open to int if u're first n I often sit on safe server}}$ 
 $\color{#d2b95f}{\textsf{please sign my ata! and lookin for smp/roblox cosplayers}}$
 </p>
 <img src="https://files.catbox.moe/2bvwf9.jpg" width="500">
