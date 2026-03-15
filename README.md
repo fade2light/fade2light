@@ -1,4 +1,4 @@
- <img src="https://files.catbox.moe/jwywuy.png" width="300" align="right"> 
+ <img src="https://files.catbox.moe/jwywuy.png" width="250" align="right"> 
  <div align="center">
 <b>hoshi hehim 18</b>
 
