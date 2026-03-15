@@ -3,8 +3,8 @@
 $\color{#A1B64F}{\textsf{i'm open to int if u're first n I often sit on safe server}}$ 
 $\color{#d2b95f}{\textsf{please sign my ata! and lookin for smp/roblox cosplayers}}$
 </p>
-<img src="https://files.catbox.moe/2bvwf9.jpg" width="600">
-<img src="https://files.catbox.moe/a57ys7.png" width="600">
+<img src="https://files.catbox.moe/2bvwf9.jpg" width="500">
+<img src="https://files.catbox.moe/a57ys7.png" width="500">
    </p>
  <div align="center">
   <a href="https://github.com/fade2light">
