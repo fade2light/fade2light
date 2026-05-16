@@ -2,7 +2,7 @@
  <div align="center">
 <b>hoshi hehim 18</b>
 
-$\color{#A1B64F}{\textsf{w2i i'm open to int if u're first n I often sit on safe server}}$ 
+$\color{#A1B64F}{\textsf{w2i i'm open to int if u're first n i often sit on safe server}}$ 
 $\color{#d2b95f}{\textsf{please sign my ata! and lookin for smp/roblox cosplayers !}}$
 </p>
 <img src="https://files.catbox.moe/a57ys7.png" width="500">
